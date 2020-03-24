@@ -1,0 +1,65 @@
+baseURL = "http://calmbomb.eu"
+languageCode = "ro-ro"
+title = "calm.like.a.bomb"
+theme = "ezhil"
+paginate = 5
+
+copyright = "©2020 Toate articolele de pe site sunt originale."
+
+summaryLength = 20
+
+[taxonomies]
+    tag = "tags"
+    category = "categories"
+
+[params]
+    subtitle = "Scriu despre muzică"
+    disableDisqusTypes = ["page"]
+    mode = "dark"
+    mainSections = ["post"]
+
+[permalinks]
+    posts = "/:year-:month-:day-:title"
+
+# Main menu which appears below site header.
+[[menu.main]]
+name = "Acasă"
+url = "/"
+weight = 1
+
+#[[menu.main]]
+#name = "All posts"
+#url = "/posts"
+#weight = 2
+#
+
+[[menu.main]]
+name = "Cronici de concert"
+url = "/categories/cronica-de-concert/"
+weight = 2
+
+[[menu.main]]
+name = "Interviuri"
+url = "/categories/interviu/"
+weight = 3
+
+[[menu.main]]
+name = "Bețivisme"
+url = "/categories/betivisme/"
+weight = 4
+
+[[menu.main]]
+name = "Recomandări"
+url = "/categories/recomandari/"
+weight = 5
+
+[[menu.main]]
+name = "Tags"
+url = "/tags"
+weight = 6
+
+[[menu.main]]
+name = "Despre"
+url = "/about"
+weight = 7
+
