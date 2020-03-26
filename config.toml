@@ -18,6 +18,7 @@ summaryLength = 20
     mode = "dark"
     mainSections = ["post"]
 
+# permalinks
 [permalinks]
     posts = "/:year-:month-:day-:title"
 
