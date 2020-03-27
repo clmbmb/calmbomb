@@ -38,7 +38,7 @@ A fost inca o seara minunata, impreuna cu prietenii si cu muzica care ne aduce i
 
 ![Foto: Deathdrive](/img/deathdrive_5253789306_o.jpg)
 
-![Foto: Adiţă înfulecă](/img/adi-nfulec_5253180755_o.jpg)
+![Foto: Adiță înfulecă](/img/adi-nfulec_5253180755_o.jpg)
 
 ![Foto: Deathdrive](/img/deathdrive_5253179141_o.jpg)
 

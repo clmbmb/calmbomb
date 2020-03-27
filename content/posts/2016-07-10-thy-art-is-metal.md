@@ -12,7 +12,7 @@ tags:
 - Negative Core Project
 - Thy Art Is Murder
 ---
-Incep articolul, ca niciodata, multumindu-i foarte mult lui [Miluţă Flueraş](https://www.facebook.com/miluta7) pentru fotografiile care apar mai jos.
+Incep articolul, ca niciodata, multumindu-i foarte mult lui [Miluță Flueraș](https://www.facebook.com/miluta7) pentru fotografiile care apar mai jos.
 
 Si-acum va povestesc cum a fost la concert. Am ajuns joi seara, impreuna cu Andreea, pe la 21:30, in Fabrica. Acolo i-am gasit pe scena pe [Negative Core Project](https://www.facebook.com/NegativeCoreProjectRO), care cantau in fata a cel putin 100 de oameni.
 
