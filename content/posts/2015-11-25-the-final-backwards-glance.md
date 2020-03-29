@@ -16,7 +16,7 @@ Am ajuns la primul concert de dupa tragedia din Colectiv, un concert la care ast
 
 Asa ca... Pe la 20:30 am ajuns in club, chiar daca stiam ca la 19:30 incepe show-ul. Deh, treburi de familie, job, etc. Din pacate, i-am pierdut din nou pe **_Take No More_**. Am ajuns cand pe scena erau moldovenii (din Chisinau) de la [Walk Alone](https://www.facebook.com/walkalonemdhc). Lumea nu se prea inghesuia la mosheala, desi erau stransi cam 50 de oameni. Dar, incet-incet, pe ritmurile baietilor, cativa curajosi s-au bagat la o mica miscare in fata. Atat cat am putut sa-i ascult, basarabenii au sunat bine, cu putine "iesiri in decor" de inteles pentru o trupa tanara. Am speranta sa-i mai vad macar o data in Bucuresti, desi stiu ca pentru ei e un efort imens sa ajunga.
 
-Apoi au venit baietii nostri de la [First Division](/tag/First-Division), care au dat-o pe stilul lor putin mai dur, putin mai spre hip-hop. Din pacate si la ei publicul a fost cam apatic, dar lumea s-a bucurat de muzica de pe scena si de atmosfera placuta.
+Apoi au venit baietii nostri de la [First Division](/tags/First-Division), care au dat-o pe stilul lor putin mai dur, putin mai spre hip-hop. Din pacate si la ei publicul a fost cam apatic, dar lumea s-a bucurat de muzica de pe scena si de atmosfera placuta.
 
 Intre timp, impreuna cu Sorin, Ciprian si Andreea, am mai baut cate o bere, ne-am cumparat tricouri, am povestit, am barfit, am ras.. si am asteptat momentul serii. Care moment nu s-a lasat foarte mult asteptat.
 

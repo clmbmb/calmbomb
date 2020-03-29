@@ -20,7 +20,7 @@ Dupa incalzirea de dupa-amiaza, pe la 20:30 am ajuns la club (Kruhnen Musik Hall
 
 ![Foto: Clitgore](/img/clitgore.jpg)
 
-La 20:45, cum era si anuntat, pe scena au venit romanii nostri de la [Clitgore](/tag/clitgore/) pe care ii mai vazusem de cateva ori, dar in special (fix acum un an)[/2016-03-17-magrudergrind-in-adapost/], in Cluj, in deschidere la Magrudergrind. De data asta au fost in componenta completa, iar show-ul a fost pe masura. De la prima piesa si pana la ultima, tineretul din fata scenei si-a facut de cap in toate felurile posibile, incluzand aici dansul cu papusa si penisul gonflabile, mosheala caracteristica, dansurile haotice si asa mai departe. Totul a durat cam 45 de minute...
+La 20:45, cum era si anuntat, pe scena au venit romanii nostri de la [Clitgore](/tags/clitgore/) pe care ii mai vazusem de cateva ori, dar in special (fix acum un an)[/2016-03-17-magrudergrind-in-adapost/], in Cluj, in deschidere la Magrudergrind. De data asta au fost in componenta completa, iar show-ul a fost pe masura. De la prima piesa si pana la ultima, tineretul din fata scenei si-a facut de cap in toate felurile posibile, incluzand aici dansul cu papusa si penisul gonflabile, mosheala caracteristica, dansurile haotice si asa mai departe. Totul a durat cam 45 de minute...
 
 ![Foto: Excrementory Grindfuckers](/img/excrementory-grindfuckers1.jpg)
 

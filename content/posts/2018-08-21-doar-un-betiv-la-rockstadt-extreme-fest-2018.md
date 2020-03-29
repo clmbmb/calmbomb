@@ -38,7 +38,7 @@ Prima trupă pe care am văzut-o în prima zi a fost [Obscure Sphinx](https://ww
 
 Am luat apoi o pauză lungă de două ore, timp în care am băgat câteva beri și ne-am tot plimbat de colo-colo pe unde am apucat. Am făcut și câteva stopuri la standul cu "merch" - unul din cele mai slabe de la orice festival la care am fost - tot sperând să văd chestii interesante. Mi-am luat tricou cu polonezii și mi-am văzut mai departe de bere.
 
-După pauza respectivă ne-am mutat cu toții înapoi la scena "Adrian Rugină" (R.I.P.) să-i vedem pe norvegienii de la [Enslaved](/tag/Enslaved), niște tipi care nu mai au nevoie de prezentări. În schimb au făcut ei prezentările necesare, venind cu un nou tobar și cu un nou tip la orgă/backing vocals (ăsta are deja un an în formație, cred). Și bineînțeles că n-am fost dezamăgiți. Chiar dacă nu au cântat cu instrumentele lor - alea fiind pierdute pe la aeroport pe undeva, împreună cu ale mai multor trupe - au sunat impecabil. Au cântat piese de pe ultimul album, dar s-au dus și în trecut și ne-au "zis" câteva chestii mai vechi și mai "rele". Publicul a fost și el la înălțime, iar vikingii s-au arătat mulțumiți de asta.
+După pauza respectivă ne-am mutat cu toții înapoi la scena "Adrian Rugină" (R.I.P.) să-i vedem pe norvegienii de la [Enslaved](/tags/Enslaved), niște tipi care nu mai au nevoie de prezentări. În schimb au făcut ei prezentările necesare, venind cu un nou tobar și cu un nou tip la orgă/backing vocals (ăsta are deja un an în formație, cred). Și bineînțeles că n-am fost dezamăgiți. Chiar dacă nu au cântat cu instrumentele lor - alea fiind pierdute pe la aeroport pe undeva, împreună cu ale mai multor trupe - au sunat impecabil. Au cântat piese de pe ultimul album, dar s-au dus și în trecut și ne-au "zis" câteva chestii mai vechi și mai "rele". Publicul a fost și el la înălțime, iar vikingii s-au arătat mulțumiți de asta.
 
 Și cum o pauză nu vine niciodată singură, am zis să mai luăm una, pentru că nu prea ne plăceau trupele care urmau... Iar pauza asta s-a numit "pauza de masă" - și de bere! Normal!
 
@@ -46,7 +46,7 @@ După încă aproape două ore, ne-am mutat încetișor către scena mică, unde
 
 Vocalul a urcat pe monitoare și a urlat o dată "Are you ready, Romania!?!?!?", iar apoi a început distracția. Au dat bine de tot un hardcore punk cu influențe New Yorkeze, iar publicul - în special puștanii de 16-20 de ani - n-au stat o secundă. Zidul de sunet, atitudinea vocalistului și ritmurile alea mișto au pus în mișcare un moshpit de nota 10. N-au lipsit circle pit-urile neanunțate și peste tot prezentul "wall of death". A fost trupa perfectă care ne-a dat energia necesară să mai stăm și la ultima trupă.
 
-Care ultimă trupă, pe scena mare, a fost [Obituary](/tag/obituary/), cu death-ul lor clasic, "crushing" cu riff-uri sâcâitoare și cu vocea aia a lui Tardy care nu s-a schimbat de 30 de ani de când îi tot ascult. A, și nici pletele lor blonde nu s-au schimbat. Și ei, ca și Enslaved, au cântat pe instrumentele altora (bravo, Bucovina!), dar au sunat foarte bine și foarte legat, simțindu-se de la o poștă experiența pe care o au. Așa cum era de așteptat, în fața scenei a fost plin ochi, iar moshpit-ul nu s-a oprit până la ultima notă. Un concert perfect pentru a încheia prima seară!
+Care ultimă trupă, pe scena mare, a fost [Obituary](/tags/obituary/), cu death-ul lor clasic, "crushing" cu riff-uri sâcâitoare și cu vocea aia a lui Tardy care nu s-a schimbat de 30 de ani de când îi tot ascult. A, și nici pletele lor blonde nu s-au schimbat. Și ei, ca și Enslaved, au cântat pe instrumentele altora (bravo, Bucovina!), dar au sunat foarte bine și foarte legat, simțindu-se de la o poștă experiența pe care o au. Așa cum era de așteptat, în fața scenei a fost plin ochi, iar moshpit-ul nu s-a oprit până la ultima notă. Un concert perfect pentru a încheia prima seară!
 
 ## Ziua II
 
@@ -67,7 +67,7 @@ Dar pauză doar de o trupă, pentru că apoi am ajuns la scena mică, unde urmau
 
 Dar "pensilvănenii" nu au stat la povești și în dulcele stil american au ocupat scena și au aruncat în aer atmosfera. Așa cum le spune numele, băieții ăștia au fost de la un capăt la altul "plini de iad (draci!)" și au rupt în două tot ce s-a putut: boxe, scenă, public. A fost o nebunie completă care a fost savurată până și de nevastă-mea, care avea să-mi amintească de ei încă cel puțin o săptămână. După ce au terminat ce aveau de spus, am mers la ei sa-mi semneze CD-urile pe care le cumpărasem și am stat la o picătură de vorbă cu vocalul, care ne-a asigurat că anul viitor vor trage o tură și prin București! Veniți, că e o trupă care merită văzută.
 
-După ei am mers repede-repejor spre scena mare, chiar la îndemnul "fullofhell"-ilor, pentru că acolo începuseră deja "tăticii" de la [Dying Fetus](/tag/dying-fetus/). La ei, din nou, nu prea e mult de spus.
+După ei am mers repede-repejor spre scena mare, chiar la îndemnul "fullofhell"-ilor, pentru că acolo începuseră deja "tăticii" de la [Dying Fetus](/tags/dying-fetus/). La ei, din nou, nu prea e mult de spus.
 
 Cântând de 30 de ani, e clar că au o tehnică și o unitate de grup care se simte de la primul acord. Sunt super tehnici și sună atât de bine și de clar, deși muzica lor e zgomotoasă și cu nerv. Și la ei, ca la toate trupele de fapt, a fost nebunie mare în public și tipii s-au arătat mulțumiți de reacția oamenilor. Din nou, un final de zi de pomină. (un mic PS: și ei au impresionat-o pe nevastă!)
 
@@ -75,7 +75,7 @@ Cântând de 30 de ani, e clar că au o tehnică și o unitate de grup care se s
 
 Chiar dacă Răzvan a zis că se duce de la 16:00 să-i vadă pe **The Fallen Prophets**, noi am așteptat până puțin mai târziu, pentru că am vrut să ajungem abia la [Kurokuma](https://www.facebook.com/kurokumauk/). De băieții ăștia nu auzisem, dar cu o seară înainte tocmai am dat peste vechiul meu prieten Max Deatherul care mi-a spus de ei. Așa că am ajuns pe la 18:00 la scena mică și i-am urmărit cu atenție. Au dat bine de tot un post-sludge-metal-core-cu-de-toate. Chiar dacă nu au avut atât de mult public ca alte formații, tipii s-au simțit bine și au transmis starea lor și nouă, celor care eram acolo în fața scenei. Intereant a fost că vocalistul - fiind român - a fost vizitat de rude (părinți, bunici, frați) și a fost interesant să vedem câțiva "oameni normali" printre noi, în special bunica fotografă care la final a ridicat mâinile cu "metal horns" \m/!
 
-Apoi ne-am mutat spre scena mare unde urmau să cânte mexi-merica-europenii de la [Brujeria](/tag/brujeria). Nu am stat prea mult acolo, pentru că sincer nu mă prea încântă muzica lor. În schimb am văzut că publicul a gustat din plin show-ul burtoșilor de pe scenă...
+Apoi ne-am mutat spre scena mare unde urmau să cânte mexi-merica-europenii de la [Brujeria](/tags/brujeria). Nu am stat prea mult acolo, pentru că sincer nu mă prea încântă muzica lor. În schimb am văzut că publicul a gustat din plin show-ul burtoșilor de pe scenă...
 
 Iar după ei am avut o pauză de vreo oră și jumătate, timp în care ne-am distrat văzând lumea din ce în ce mai colorată adunându-se la scena mică pentru cehii nebuni de la [Gutalax](https://www.facebook.com/GUTALAX-cz-gore-grind--116773548349011/). Și așteptarea n-a fost degeaba.
 
@@ -83,7 +83,7 @@ Chiar dacă la o scară mult mai mică, am avut pentru 40 de minute un mic Obsce
 
 Am fost și eu în fața scenei și m-am băgat în hora veseliei care se dorea a fi un circle pit, dar nu prea se putea alerga, pentru că eram prea mulți și înghesuiți. Ce să mai zic? A fost unul din cele mai mișto momente ale festivalului.
 
-După care ne-am deplasat spre scena mare, să-i vedem pe [Amorphis](/tag/amorphis). Chiar dacă după primele patru albume nu prea m-am atins de discografia lor, mereu am mers la ei să-i văd. Din păcate, de data asta am fost foarte dezamăgit. Au cântat multe piese de pe albumul nou și de pe albume de dupa 2000, dar ce m-a deranjat mai mult a fost că au cântat piesele vechi (de pe "Tales...") în stilul albumelor noi și au sunat aiurea rău.. Pentru mine au fost dezamăgirea festivalului.
+După care ne-am deplasat spre scena mare, să-i vedem pe [Amorphis](/tags/amorphis). Chiar dacă după primele patru albume nu prea m-am atins de discografia lor, mereu am mers la ei să-i văd. Din păcate, de data asta am fost foarte dezamăgit. Au cântat multe piese de pe albumul nou și de pe albume de dupa 2000, dar ce m-a deranjat mai mult a fost că au cântat piesele vechi (de pe "Tales...") în stilul albumelor noi și au sunat aiurea rău.. Pentru mine au fost dezamăgirea festivalului.
 
 După ei am mai luat o pauză în care am mai mâncat câte ceva, am mai băut o bere, am mai stat la povești. Am aruncat și un ochi la W.A.S.P., care, chiar dacă au avut succes la o parte a publicului, mie mi-au stârnit doar un zâmbet.
 
@@ -103,7 +103,7 @@ Apoi formațiile au trecut una după alta fără să mă intereseze prea mult. A
 [caption id="attachment_6964" align="aligncenter" width="4032"]![Septicflesh](/img/septicflesh_20180805_2221220.jpg)
 Septicflesh[/caption]
 
-Iar la final am mers la scena principală să-i vedem pe greții de la [Septicflesh](/tag/septicflesh). Nu pot spune că sunt un mare fan al lor, dar îmi place în oarecare măsura muzica. Lumea adunată în fața scenei a fost destul de activă, mai ales că vocalistul a ținut să-i congratuleze în fiecare moment "liber" cu "come on, my friends!!! let's see your heads banging!" A fost un show bun și am savurat câteva piese, pe unele vechi chiar agitându-mă puțin ("Persepolis" rules!!!).
+Iar la final am mers la scena principală să-i vedem pe greții de la [Septicflesh](/tags/septicflesh). Nu pot spune că sunt un mare fan al lor, dar îmi place în oarecare măsura muzica. Lumea adunată în fața scenei a fost destul de activă, mai ales că vocalistul a ținut să-i congratuleze în fiecare moment "liber" cu "come on, my friends!!! let's see your heads banging!" A fost un show bun și am savurat câteva piese, pe unele vechi chiar agitându-mă puțin ("Persepolis" rules!!!).
 
 Și cam atât - pentru mine - pentru că **In Flames** nu m-au "gâdilat" niciodată, așa că n-am vrut să mai pierd vremea cu show-ul lor. Știu că nu e o părere prea populară, dar mi se par prea comerciali față de ce au fost la început, iar show-ul lor cu mii de watti de lumină mi se pare puțin cam exagerat.
 

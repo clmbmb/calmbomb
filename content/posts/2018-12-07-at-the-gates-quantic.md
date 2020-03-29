@@ -10,7 +10,7 @@ categories:
 tags:
 - At The Gates
 ---
-Sunt câteva formații despre care am amintirea primului contact. Nu sunt multe, dar în general sunt printre formațiile mele preferate. Una din ele este [At The Gates](/tag/at-the-gates). Am avut cu ei de fapt două contacte - primul a fost prin '93-'94, când unul din prietenii din acea perioadă (toată lumea îl știa de Groparu') a venit cu o casetă cu albumul "With Fear I Kiss the Burning Darkness" și ne-a dat puțin pe spate.
+Sunt câteva formații despre care am amintirea primului contact. Nu sunt multe, dar în general sunt printre formațiile mele preferate. Una din ele este [At The Gates](/tags/at-the-gates). Am avut cu ei de fapt două contacte - primul a fost prin '93-'94, când unul din prietenii din acea perioadă (toată lumea îl știa de Groparu') a venit cu o casetă cu albumul "With Fear I Kiss the Burning Darkness" și ne-a dat puțin pe spate.
 
 Era ceva nou și interesant. Apoi am aflat și de "The Red in the Sky is Ours", care era mai vechi, dar la fel de interesant pentru perioada aia. A urmat și "Terminal Spirit Disease", dar deja eram obișnuiți cu ei... Însă peste câțiva ani, prin '96, am comandat direct la Earache niște tricouri, hanorace și un vinil (Nazi Punks Fuck Off - Napalm Death) și am fost mega surprinși să găsim în pachet o casetă demo cu At The Gates cu primele patru piese de pe albumul "Slaughter of The Soul", care urma să fie lansat. Am rupt caseta aia în două! Am ascultat-o la maxim de nenumărate ori, pentru că suna atât de bine de nu ne venea să credem... iar restul e poveste!
 
