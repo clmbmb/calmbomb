@@ -22,6 +22,7 @@ summaryLength = 20
     fullWidthTheme = false
     centerTheme = true
     showLastUpdated = true
+    favicon = "clmbmb128.png"
 
 # permalinks
 [permalinks]
