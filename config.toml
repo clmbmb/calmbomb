@@ -2,6 +2,7 @@ baseURL = "https://calmbomb.eu/"
 languageCode = "ro-ro"
 title = "calm.like.a.bomb"
 paginate = 5
+theme = "ezhil"
 
 copyright = "©2020 Toate articolele de pe site sunt originale."
 
