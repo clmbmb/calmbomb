@@ -1,7 +1,6 @@
 baseURL = "https://calmbomb.eu/"
 languageCode = "ro-ro"
 title = "calm.like.a.bomb"
-theme = "ezhil"
 paginate = 5
 
 copyright = "©2020 Toate articolele de pe site sunt originale."
@@ -17,6 +16,11 @@ summaryLength = 20
     disableDisqusTypes = ["page"]
     mode = "dark"
     mainSections = ["post"]
+    contentTypeName = "posts"
+    themeColor = "red"
+    fullWidthTheme = false
+    centerTheme = true
+    showLastUpdated = true
 
 # permalinks
 [permalinks]
